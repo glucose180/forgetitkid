@@ -8,6 +8,7 @@
 ![KakaoTalk_20231201_154935637](https://github.com/glucose180/forgetitkid/assets/54951597/1ab31490-d8ed-4069-ad5c-c0a164ac828e)
 ![KakaoTalk_20231201_193425359](https://github.com/glucose180/forgetitkid/assets/54951597/222e426c-2fa1-484e-9b56-83b1cf26219f)
 ![KakaoTalk_20231201_211727406](https://github.com/glucose180/forgetitkid/assets/54951597/cc07b291-1abd-468a-a65d-7e0e7303a5e6)
+![맵_new](https://github.com/glucose180/forgetitkid/assets/54951597/c58a0c18-4ad7-404f-8632-1a49ef3a4ca5)
 
 
 
